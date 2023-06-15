@@ -1,2 +1,2 @@
-Hanim Nuru - hanimn@uchicago.edu
+Hanim Nuru - hanimn
 
